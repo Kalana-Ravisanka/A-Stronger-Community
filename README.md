@@ -33,7 +33,7 @@ This project helped me improve my:
 
 ## 🔗 Project
 
-**LinkedIn:** [View Project on LinkedIn]([https://www.linkedin.com/posts/kalana-ravisanka-420495345_uidesign-uxdesign-webdesign-ugcPost-7492929877361180672-conA/](https://www.linkedin.com/posts/kalana-ravisanka-420495345_uidesign-uxdesign-webdesign-ugcPost-7492929877361180672-conA/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFZj_RgBmrZ-pdUFvcx7IXReIvVWI-b1uVg))
+**LinkedIn:** [View Project on LinkedIn]([https://www.linkedin.com/posts/kalana-ravisanka-420495345_uidesign-uxdesign-webdesign-ugcPost-7492929877361180672-conA/](https://www.linkedin.com/posts/kalana-ravisanka-420495345_uidesign-uxdesign-webdesign-ugcPost-7492929877361180672-conA/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFZj_RgBmrZ-pdUFvcx7IXReIvVWI-b1uVg)
 
 ## 🏷️ Tags
 
