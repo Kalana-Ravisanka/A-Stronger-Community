@@ -33,6 +33,7 @@ This project helped me improve my:
 
 ## 🔗 Project
 **Figma:** [View Project on Figma](https://www.figma.com/design/4L4yAl5YHNWjYc6hA1Jpj2/Untitled?node-id=1-4172&t=zO4nHG6FZ785nfGj-1)
+
 **LinkedIn:** [View Project on LinkedIn]([https://www.linkedin.com/posts/kalana-ravisanka-420495345_uidesign-uxdesign-webdesign-ugcPost-7492929877361180672-conA/](https://www.linkedin.com/posts/kalana-ravisanka-420495345_uidesign-uxdesign-webdesign-ugcPost-7492929877361180672-conA/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFZj_RgBmrZ-pdUFvcx7IXReIvVWI-b1uVg)
 
 ## 🏷️ Tags
